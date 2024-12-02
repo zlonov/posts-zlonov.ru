@@ -1,0 +1,50 @@
+---
+layout: zlonov/old_post
+title: Фотоотчёт о посещении InfoSecurity-2011
+date: 2011-09-29 12:43
+author: admin
+category: autoimport
+tags: [InfoSecurity, информационная безопасность]
+---
+<div dir="ltr" trbidi="on">
+<div><img src="https://img-fotki.yandex.ru/get/3613/jane00072008.34/0_28caf_7039ffca_L"/></div>Побывал вчера на выставке InfoSecurity. Общее впечатление - выставка сдулась... <strike>Вражда между Монтекки и Капулетти</strike> Конкуренция между РЕСТЭКом и Гротеком, о которая я <a href="http://zlonov.blogspot.com/2011/06/2011-infobez-expo-vs-infosecurity.html">уже писал</a>, продолжается и по сей день и на пользу явно никому не идёт.<br /><a name="more"></a><br />Ещё на подходе к Сокольникам бродит человек-бутерброд с символикой Инфобеза. Какое отношение к выставке имеет красный Карл Маркс - мне не очень понятно.<br /><div><div><a href="http://3.bp.blogspot.com/-a4_7hGcbTRY/To9Vv644mAI/AAAAAAAAANM/i2DLPbBdFLk/s1600/294428_267160903314499_100000617758332_879809_410137852_n.jpg" imageanchor="1"><img border="0" height="300" src="https://3.bp.blogspot.com/-a4_7hGcbTRY/To9Vv644mAI/AAAAAAAAANM/i2DLPbBdFLk/s400/294428_267160903314499_100000617758332_879809_410137852_n.jpg" width="400"/></a></div></div>
+<br />От метро, кстати, идти до выставочного павильона довольно далеко. Маршрут, который организаторы нарисовали на схеме, вообще ведёт в обход. Он и понятно: прямой путь (которым я пошёл в надежде сэкономить время) проходит через активные строительные работы.<br /><div>
+<div><a href="http://1.bp.blogspot.com/-Zz24Z5ZzYZA/UG_IMTAzZ9I/AAAAAAAABM0/cANklIohfyk/s1600/298738_267161206647802_100000617758332_879815_1453112426_n.jpg" imageanchor="1"><img border="0" height="300" src="https://1.bp.blogspot.com/-Zz24Z5ZzYZA/UG_IMTAzZ9I/AAAAAAAABM0/cANklIohfyk/s400/298738_267161206647802_100000617758332_879815_1453112426_n.jpg" width="400"/></a></div>
+<div><br /></div>
+<a href="http://2.bp.blogspot.com/-5Y_yViPycNM/UG_IRSmdVYI/AAAAAAAABNc/br05C_idE3g/s1600/307362_267161219981134_100000617758332_879816_399459842_n.jpg" imageanchor="1"><img border="0" height="300" src="https://2.bp.blogspot.com/-5Y_yViPycNM/UG_IRSmdVYI/AAAAAAAABNc/br05C_idE3g/s400/307362_267161219981134_100000617758332_879816_399459842_n.jpg" width="400"/></a><br /><br />
+</div>Знакомые по прошлому году ступеньки, курящий народ... Интересно, что же внутри?<br /><div><img height="300" src="https://fbcdn-sphotos-a.akamaihd.net/hphotos-ak-ash4/321229_267161233314466_100000617758332_879817_1128713729_n.jpg" width="400"/></div>
+<div><br /></div>Выставочный павильон производит удручающее впечатление. На этой фотографии видна практически вся выставка: не вместилось буквально по несколько стендов справа и слева. Была бы возможность отойти шагов на десять - попали бы все.<br /><div>
+<br /><a href="http://1.bp.blogspot.com/-zUjQRO5MV0M/UG_IZDMkC-I/AAAAAAAABO0/Y9-llStzsHc/s1600/317313_267161246647798_100000617758332_879818_661171901_n.jpg" imageanchor="1"><img border="0" height="300" src="https://1.bp.blogspot.com/-zUjQRO5MV0M/UG_IZDMkC-I/AAAAAAAABO0/Y9-llStzsHc/s400/317313_267161246647798_100000617758332_879818_661171901_n.jpg" width="400"/></a>
+</div>
+<br />Стендисты откровенно скучают, на меня, как на посетителя, внимания вообще не обращали - никто даже не подошёл и ничего не спросил.<br /><div>
+<br /><a href="http://1.bp.blogspot.com/-LapQF7RxBDQ/UG_IU3FECFI/AAAAAAAABOE/wPAk6ZH66lw/s1600/311717_267161266647796_100000617758332_879819_730636974_n.jpg" imageanchor="1"><img border="0" height="300" src="https://1.bp.blogspot.com/-LapQF7RxBDQ/UG_IU3FECFI/AAAAAAAABOE/wPAk6ZH66lw/s400/311717_267161266647796_100000617758332_879819_730636974_n.jpg" width="400"/></a>
+</div>
+<div><br /></div>
+<div><a href="http://3.bp.blogspot.com/-o8ocwdjAcRg/UG_IPItIDoI/AAAAAAAABNQ/6_UySq5JeLU/s1600/305098_267161593314430_100000617758332_879839_34966807_n.jpg" imageanchor="1"><img border="0" height="300" src="https://3.bp.blogspot.com/-o8ocwdjAcRg/UG_IPItIDoI/AAAAAAAABNQ/6_UySq5JeLU/s400/305098_267161593314430_100000617758332_879839_34966807_n.jpg" width="400"/></a></div>
+<div><br /></div>
+<div>
+<div><a href="http://3.bp.blogspot.com/-ujC-chKDUMM/UG_IKOfH8XI/AAAAAAAABMg/LVohR76psLw/s1600/296729_267161609981095_100000617758332_879840_1274851691_n.jpg" imageanchor="1"><img border="0" height="300" src="https://3.bp.blogspot.com/-ujC-chKDUMM/UG_IKOfH8XI/AAAAAAAABMg/LVohR76psLw/s400/296729_267161609981095_100000617758332_879840_1274851691_n.jpg" width="400"/></a></div>
+<div><br /></div>
+<div><a href="http://4.bp.blogspot.com/-W4R-oIVBzUQ/UG_IUNAGJBI/AAAAAAAABN8/4u2Ct8ANgXQ/s1600/310795_267161549981101_100000617758332_879837_1896856242_n.jpg" imageanchor="1"><img border="0" height="300" src="https://4.bp.blogspot.com/-W4R-oIVBzUQ/UG_IUNAGJBI/AAAAAAAABN8/4u2Ct8ANgXQ/s400/310795_267161549981101_100000617758332_879837_1896856242_n.jpg" width="400"/></a></div>
+</div>
+<div><br /></div>
+<div></div>
+<div><br /></div>
+<div></div>Посетители традиционно развлекают себя сами: макулатуркой, набившими оскомину презервативами от Касперского и прочей раздаткой.<br /><div><a href="http://1.bp.blogspot.com/-d3l93kOXTF0/UG_IVjrWZOI/AAAAAAAABOM/vTUmEEfD-rQ/s1600/313162_267161316647791_100000617758332_879823_2043452467_n.jpg" imageanchor="1"><img border="0" height="300" src="https://1.bp.blogspot.com/-d3l93kOXTF0/UG_IVjrWZOI/AAAAAAAABOM/vTUmEEfD-rQ/s400/313162_267161316647791_100000617758332_879823_2043452467_n.jpg" width="400"/></a></div>
+<br />Кстати, все стенды стандартной застройки: колонна с логотипом в центре и два крыла, высотой по грудь, расходящиеся в стороны. Угол между крыльями определяет площадь стенда и его стоимость для участника. С одной стороны - выставка получается открытой, с другой - кажется очень куцей и скучной. Единственный нестандартный стенд:<br /><div><div><a href="http://1.bp.blogspot.com/-iepU4JDJxqQ/UG_IL48e3MI/AAAAAAAABMs/mZXiMLCD3DU/s1600/298390_267161273314462_100000617758332_879820_2007895826_n.jpg" imageanchor="1"><img border="0" height="300" src="https://1.bp.blogspot.com/-iepU4JDJxqQ/UG_IL48e3MI/AAAAAAAABMs/mZXiMLCD3DU/s400/298390_267161273314462_100000617758332_879820_2007895826_n.jpg" width="400"/></a></div></div>
+<br />Как всегда порадовали "закуточки" на границе выставки. Комнатушка со столом, стулом, парой плакатиков и пачкой макулатуры - и кому это надо?<br /><div>
+<div><a href="http://2.bp.blogspot.com/-JPhm1BHlwwY/UG_IOWXv6UI/AAAAAAAABNE/xGQ5nvw7FsQ/s1600/299650_267161403314449_100000617758332_879828_115545895_n.jpg" imageanchor="1"><img border="0" height="300" src="https://2.bp.blogspot.com/-JPhm1BHlwwY/UG_IOWXv6UI/AAAAAAAABNE/xGQ5nvw7FsQ/s400/299650_267161403314449_100000617758332_879828_115545895_n.jpg" width="400"/></a></div>
+<div><br /></div>
+<div><a href="http://2.bp.blogspot.com/-g0G7APuobAM/UG_INbQxJJI/AAAAAAAABM8/ml3MpLdFDqI/s1600/298823_267161289981127_100000617758332_879821_2043041074_n.jpg" imageanchor="1"><img border="0" height="300" src="https://2.bp.blogspot.com/-g0G7APuobAM/UG_INbQxJJI/AAAAAAAABM8/ml3MpLdFDqI/s400/298823_267161289981127_100000617758332_879821_2043041074_n.jpg" width="400"/></a></div>
+</div>
+<div><br /></div>
+<div></div>
+<br />Комнатки для презентаций рассчитаны человек на 25 максимум - организаторы, видимо, предвидели отсутствие реального интереса. На фото представителя Лаборатории Касперского слушаю аж человек 15.<br /><div><div><a href="http://2.bp.blogspot.com/-5BVmxuNB9wo/UG_ITSRnPPI/AAAAAAAABN0/pekowrqTQ70/s1600/309354_267161306647792_100000617758332_879822_1553294184_n.jpg" imageanchor="1"><img border="0" height="300" src="https://2.bp.blogspot.com/-5BVmxuNB9wo/UG_ITSRnPPI/AAAAAAAABN0/pekowrqTQ70/s400/309354_267161306647792_100000617758332_879822_1553294184_n.jpg" width="400"/></a></div></div>
+<br />Самое крупное "помещение" - центральная сцена, во время любого события на которой на близлежащих (а таковых много - размеры выставки более, чем скромны) стендах нельзя было даже поговорить.<br /><div><img height="300" src="https://fbcdn-sphotos-a.akamaihd.net/hphotos-ak-snc7/321287_267161343314455_100000617758332_879825_467090764_n.jpg" width="400"/></div>
+<br />Девушек красивых было мало, но они были. Вот красавицы из Кода Безопасности:<br /><div><div><a href="http://3.bp.blogspot.com/-SmEL0QaE9VM/UG_ISDK1UyI/AAAAAAAABNk/ljGdLay5fAw/s1600/307431_267161489981107_100000617758332_879833_91934063_n.jpg" imageanchor="1"><img border="0" height="300" src="https://3.bp.blogspot.com/-SmEL0QaE9VM/UG_ISDK1UyI/AAAAAAAABNk/ljGdLay5fAw/s400/307431_267161489981107_100000617758332_879833_91934063_n.jpg" width="400"/></a></div></div>
+<br />А это модели Инфосистем Джет. В павильоне было холодно и нарядные платья скрылись под куртками и кофтами.<br /><div><div><a href="http://3.bp.blogspot.com/-GzZ7X5yVTmQ/UG_IbmLl3lI/AAAAAAAABPM/Frq7pI7sOys/s1600/320115_267177936646129_100000617758332_879870_539434249_n.jpg" imageanchor="1"><img border="0" height="300" src="https://3.bp.blogspot.com/-GzZ7X5yVTmQ/UG_IbmLl3lI/AAAAAAAABPM/Frq7pI7sOys/s400/320115_267177936646129_100000617758332_879870_539434249_n.jpg" width="400"/></a></div></div>
+<br />Кстати, все коллеги, работавшие на стендах, в один голос говорят, что выставка ни о чём. Утром ещё какой-то ажиотаж можно было наблюдать, но после обеда (как раз когда я и приехал) делать на стендах было практически нечего - только друг к другу в гости ходить.<br /><br />В общем, если вам совсем нечем заняться, есть непреодолимое желание послушать пару из заявленных докладов (мне в программе только пара и понравилась, кстати) или давно не виделись с коллегами - добро пожаловать на InfoSecurity.<br /><br />Остаётся надеяться, что на Инфобезе, где, кстати, мы со своим стендом участвуем, будет полезнее и веселее. Ну, мы во всяком случае со своей стороны очень постараемся.<br /><br /><div>
+<i><span>Изображение: http://img-fotki.yandex.ru/get/3613/jane00072008.34/0_28caf_7039ffca_L</span></i><br /><div><br /></div>
+<div>UPD. <a href="http://zlonov.blogspot.com/2011/10/blog-post.html">Про Инфобез тоже есть отчёт</a>.</div>
+</div>
+</div>
